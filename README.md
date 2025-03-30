@@ -1,0 +1,2 @@
+# shimorocalc
+KALKULATOR OT SHIMORENKOVA!!!!
